@@ -1,2 +1,2 @@
 # invie-GitHub
-Tus mejores guitarras invie-sibles
+Tus mejores guitarras invie-sibles by @MisaelGC
